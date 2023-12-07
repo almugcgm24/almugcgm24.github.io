@@ -1,1 +1,0 @@
-# almugcgm24.github.io
